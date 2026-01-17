@@ -23,8 +23,8 @@
 <a href="https://."><img src="https://64.media.tumblr.com/092c5361d37601131f478f3ef932af55/1f7cb71f9e13c52a-e5/s1280x1920/0d33e8a5ac7f6eadb0d7f3af34c2796357c476cb.gifv" width="800" align="center">
 <table>
     <tr>
-   
-![](https://komarev.com/ghpvc/?username=cutepolar&label=₍ᐢ..ᐢ₎&color=F4BBBB)
+      
+  ‎  ‎![](https://komarev.com/ghpvc/?username=cutepolar&label=₍ᐢ..ᐢ₎&color=F4BBBB)
 
 </td>
 </a>
