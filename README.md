@@ -1,11 +1,6 @@
 <div align=center>
   
 <a href="https://www.tumblr.com/ssunteza/805894984585887745/status-layout"><img src="https://64.media.tumblr.com/ee21c9d95d00d8de927f653b7a13d7d8/1f7cb71f9e13c52a-9e/s2048x3072/7b14ca157d4bdf46ced5ceda50e1fb6a420cb703.gifv" alt="div" width="700" title=" 𓈒𝇋♡𝇌ׁ ssunteza on tumblr . ."></a>
-
-
-<img src="https://media.discordapp.net/attachments/1455985734057066657/1461839459657191546/55_Sem_Titulo_20260116184756.png?ex=696c0396&is=696ab216&hm=9c703593462bd2721e0833eeda3333fb913f995bf0586e6cd21cfb98f366dddf&=&format=webp&quality=lossless&width=1217&height=601" width="750" alt="𓈒𝇋♡𝇌ׁ divider . .">
-<br>
-
 <img src="https://64.media.tumblr.com/b5ca21c5807dc90bf1654ea4e9baa7ff/1f7cb71f9e13c52a-b2/s500x750/e756adf03c646601c00d6c57a3286df6be713646.pnj" alt="cyrene  𓏼ׁ⑅𓈒𓈒 " title=" 𓏼ׁ⑅𓈒𓈒 ssunteza" height="500" align="left">
 
 
