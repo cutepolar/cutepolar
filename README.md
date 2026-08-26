@@ -1,8 +1,8 @@
 <div align=center>
 
-  <a href="https://www.tumblr.com/ssunteza/805894984585887745/status-layout"><img src="https://64.media.tumblr.com/68999c1d28cc76cf6b50dc2ae1621808/5d8d0603dd225f65-72/s1280x1920/424967f7d7bf0888168d943df6233adfe55aec14.gifv" alt="div" width="700" title=" 𓈒𝇋♡𝇌ׁ ssunteza on tumblr . ."></a>
+  <a href="https://www.tumblr.com/n-noneo08/794019070902190080/ଘ੭-ᐛ-monika-doki-doki-literature"><img src="https://64.media.tumblr.com/68999c1d28cc76cf6b50dc2ae1621808/5d8d0603dd225f65-72/s1280x1920/424967f7d7bf0888168d943df6233adfe55aec14.gifv" alt="div" width="700" title=" 𓈒𝇋♡𝇌ׁ n-noneo08 on tumblr . ."></a>
 
-<a href="https://www.tumblr.com/ssunteza/805894984585887745/status-layout"><img src="https://64.media.tumblr.com/f5daf4c7e893a11c2b7c2ac9b35e312d/5d8d0603dd225f65-fe/s2048x3072/f63d5d9163de3a857252b8eca9b4b90195091e62.pnj" alt="div" width="700" title=" 𓈒𝇋♡𝇌ׁ ssunteza on tumblr . ."></a>
+<a href="https://www.tumblr.com/n-noneo08/794019070902190080/ଘ੭-ᐛ-monika-doki-doki-literature"><img src="https://64.media.tumblr.com/f5daf4c7e893a11c2b7c2ac9b35e312d/5d8d0603dd225f65-fe/s2048x3072/f63d5d9163de3a857252b8eca9b4b90195091e62.pnj" alt="div" width="700" title=" 𓈒𝇋♡𝇌ׁ . ."></a>
 
 <a href="https://."><img src="https://64.media.tumblr.com/1ba76a96fefd2d349538544bda9d6c94/5d8d0603dd225f65-06/s400x600/ec72d52418a2e9f8c8c7557db9515940a44341a0.pnj" width="300" title="𓈒𝇋♡𝇌ׁ rentry" align="left"></a>
 <details>
