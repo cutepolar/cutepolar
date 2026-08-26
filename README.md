@@ -1,3 +1,5 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&size=22&duration=2000&pause=1000&color=E6E5E5&center=true&vCenter=true&width=450&lines=You're+my+sugar+after+dinner..;+My+number+one+breadwinner!;+Ain't+Nobody+else+like+you..)](https://git.io/typing-svg)
+
 <div align=center>
 
   <a href="https://www.tumblr.com/n-noneo08/794019070902190080/ଘ੭-ᐛ-monika-doki-doki-literature"><img src="https://64.media.tumblr.com/68999c1d28cc76cf6b50dc2ae1621808/5d8d0603dd225f65-72/s1280x1920/424967f7d7bf0888168d943df6233adfe55aec14.gifv" alt="div" width="700" title=" 𓈒𝇋♡𝇌ׁ n-noneo08 on tumblr . ."></a>
