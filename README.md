@@ -16,7 +16,7 @@ ${\color{#D2BFBB}dont}$ ${{\color{#AF6D5B} ⊹ ࣪ ˖mind‎ friend‎ reqs‎ b
 <details>
 <summary>${{\color{#E6E5E5} ⠀Ი𐑼⠀thingies +⠀  kind stuff ⠀⠀ ⠀}}$<img src="https://64.media.tumblr.com/cd04a9bd388432df5dd1f970e13f79c9/8a79805c334d096e-d7/s75x75_c1/3e4141efe6024283f6134b99e4b1c22420b88851.gifv"></summary>
 ${\color{#D2BFBB}ata}$ ${{\color{#AF6D5B} book‎  in‎  desc ‎‎   ,‎ ⠀‎ it‎  is‎  bright! }}$ ⠀⠀ ⠀⠀ ⠀⠀ ⠀</br>
- ${{\color{#AF6D5B}thank⠀you}}$ <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a>‎       ${{\color{#D2BFBB}4‎ prettiest‎  ponies‎  nomination .‎ I‎ rlly‎ appreciate‎ nominations‎ for‎ these‎ award‎ things! }}$ ⠀⠀ ⠀⠀ ⠀⠀ ⠀</br>
+ ${{\color{#AF6D5B}thank⠀you}}$ <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a>‎       ${{\color{#D2BFBB}4‎ prettiest‎  ponies‎  nomination .‎ }}$ ⠀⠀ ⠀⠀ ⠀⠀ ⠀</br>
 </details>
 
 <a href="https://."><img src="https://64.media.tumblr.com/160f3ed8465bc038c3045678c5f69d7c/5d8d0603dd225f65-17/s400x600/662c53f3ec6d649ff91eaf27db7870100ce8d1a1.pnj" width="200" title="𓈒𝇋♡𝇌ׁ " align="center"></a>
