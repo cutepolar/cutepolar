@@ -12,7 +12,7 @@ ${\color{#D2BFBB}dont}$ ${{\color{#AF6D5B} ⊹ ࣪ ˖be‎  afraid ‎ 2‎  int
 ${\color{#D2BFBB}dont}$ ${{\color{#AF6D5B} ⊹ ࣪ ˖mind‎ friend‎ reqs‎ but‎ i‎ probably‎ wont‎ accept‎ ‎ unless‎ we've‎ talked }}$ ⠀⠀ ⠀⠀ ⠀⠀ ⠀</br>
 </details>
 <details>
-<summary>${{\color{#E6E5E5} ⠀Ი𐑼⠀thingies +⠀ kind stuff ⠀⠀ ⠀}}$<img src="https://64.media.tumblr.com/cd04a9bd388432df5dd1f970e13f79c9/8a79805c334d096e-d7/s75x75_c1/3e4141efe6024283f6134b99e4b1c22420b88851.gifv"></summary>
+<summary>${{\color{#E6E5E5} ⠀Ი𐑼⠀thingies +⠀  kind stuff ⠀⠀ ⠀}}$<img src="https://64.media.tumblr.com/cd04a9bd388432df5dd1f970e13f79c9/8a79805c334d096e-d7/s75x75_c1/3e4141efe6024283f6134b99e4b1c22420b88851.gifv"></summary>
 ${\color{#D2BFBB}ata}$ ${{\color{#AF6D5B} book‎  in‎  desc ‎‎   ,‎ ⠀‎ it‎  is‎  bright! }}$ ⠀⠀ ⠀⠀ ⠀⠀ ⠀</br>
  ${{\color{#AF6D5B}thank⠀you}}$ <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a>‎ 4‎ prettiest‎ ponies nomination   ${{\color{#AF6D5B}!}}$ ⠀⠀ ⠀⠀ ⠀⠀ ⠀</br>
 </details>
