@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&size=22&duration=2000&pause=1000&color=E6E5E5&center=true&vCenter=true&width=450&lines=You're+my+sugar+after+dinner..;+My+number+one+breadwinner!;+Ain't+Nobody+else+like+you..)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&size=22&duration=2000&pause=1000&color=E6E5E5&center=true&vCenter=true&width=450&lines=You're+my+sugar+after+dinner..;+My+number+one+breadwinner!;+Ain't+Nobody+Else+Like+You..)](https://git.io/typing-svg)
 
 <div align=center>
 
