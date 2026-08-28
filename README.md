@@ -12,7 +12,7 @@
 ${\color{#D2BFBB}polar}$ ${{\color{#AF6D5B} ⊹ ࣪ ˖ she / her‎ ⠀, ‎  14/17‎  age‎  range ‎  ,⠀‎ br‎  , ‎‎  usually‎  in‎  safe ‎ server‎ }}$ ⠀⠀ ⠀⠀ ⠀⠀ ⠀</br>
 ${\color{#D2BFBB}dont}$ ${{\color{#AF6D5B} ⊹ ࣪ ˖be‎  afraid ‎ 2‎  int,‎  i ‎ dont‎  bite ‎ !⠀‎ dont ‎ copy‎  my ‎ skins‎  , ‎ inspo‎  is‎  fine }}$ ⠀⠀ ⠀⠀ ⠀⠀ ⠀</br>
 ${\color{#D2BFBB}dont}$ ${{\color{#AF6D5B} ⊹ ࣪ ˖mind‎ friend‎ reqs‎ but‎ i‎ probably‎ wont‎ accept‎ ‎ unless‎ we've‎ talked }}$ ⠀⠀ ⠀⠀ ⠀⠀ ⠀</br>
-  ${\color{#D2BFBB}i love}$ ${{\color{#AF6D5B} ⊹ ࣪ ˖ c + hs ok? also feel free 2 whisper or talk to me whenever }}$ ⠀⠀ ⠀⠀ ⠀⠀ ⠀</br>
+  ${\color{#D2BFBB}i love}$ ${{\color{#AF6D5B} ⊹ ࣪ ˖ c‎  +‎  hs‎  ok?‎  also ‎ feel‎  free‎  2‎  whisper‎  or ‎ talk‎  to ‎ me‎  whenever }}$ ⠀⠀ ⠀⠀ ⠀⠀ ⠀</br>
 </details>
 <details>
 <summary>${{\color{#E6E5E5} ⠀Ი𐑼⠀thingies +⠀  kind stuff ⠀⠀ ⠀}}$<img src="https://64.media.tumblr.com/cd04a9bd388432df5dd1f970e13f79c9/8a79805c334d096e-d7/s75x75_c1/3e4141efe6024283f6134b99e4b1c22420b88851.gifv"></summary>
