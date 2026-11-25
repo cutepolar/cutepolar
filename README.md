@@ -35,13 +35,12 @@
 
 <br>
 
-<p align="center">
-<img width="70" height="70" alt="image" src="https://64.media.tumblr.com/d2c532de923c79a95526663c8a618680/6877f1242679fcd9-d1/s500x750/eaf93ef0fdfbd8d999c7ae3121ddc218eb85312a.gifv" />
-</p>
 
 <p align="center">
 <img width="600" height="80" alt="image" src="https://64.media.tumblr.com/ed40775ade486b8e07c3d3d6cf6464cf/4924e46cc7bc9c94-85/s2048x3072/ec59eb9bd67db722f66c5c0cfc37860cf030b1d4.pnj" />
 </p>
-
+<p align="center">
+<img width="70" height="70" alt="image" src="https://64.media.tumblr.com/d2c532de923c79a95526663c8a618680/6877f1242679fcd9-d1/s500x750/eaf93ef0fdfbd8d999c7ae3121ddc218eb85312a.gifv" />
+</p>
 
 </div>
